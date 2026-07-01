@@ -6,5 +6,5 @@
 хотя бы 12
 3 в ряду
 https://www.asciiart.eu/image-to-ascii  
-https://muted.io/  
-https://tools.rmv.fyi/
+https://www.iloveimg.com/
+https://www.ilovepdf.com/
